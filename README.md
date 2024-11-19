@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Manahil-F-Ahmad
+- 👋 Hi, I’m @Manahil-F
 - 👀 I’m interested in Learning new things
 - 🌱 I’m currently learning computer science
 - 😄 Pronouns: she/her
